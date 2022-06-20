@@ -36,7 +36,7 @@ Certamente, o século XXI nos apresenta um novo mundo, outras formas de comunica
 
 ***
 
-## **Módulo 2 - A instituição acadêmica
+## **Módulo 2 - A instituição acadêmica**
 
 Explicar o espaço e a organização da instituição acadêmica para você tem o objetivo de deixá-lo mais confortável e de situá-lo diante da novidade, daquilo que pode ser um tanto desconhecido.
 
